@@ -2,7 +2,7 @@
 - 👀 I’m interested in computational physics
 - 🌱 I’m currently learning physics
 - 💞️ I’m looking to collaborate on my understanding of math and physics
-- 📫 How to reach me idk
+- 📫 How to reach me reddominick@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I own a cat
 
