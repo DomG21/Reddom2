@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Reddom2
+- 👋 Hi, I’m @DomG21
 - 👀 I’m interested in computational physics
 - 🌱 I’m currently learning physics
 - 💞️ I’m looking to collaborate on my understanding of math and physics
